@@ -9,7 +9,7 @@ $\color{#dab7bd}{\textsf{with the person I have become."}}$
 
 $\color{#8d083a}{\textsf{i go by kori or by name of character i have as my theme.}}$
 
-$\color{#dab7bd}{\textsf{I don't have pronouns for people i dont know so just use it/its.}}$
+$\color{#dab7bd}{\textsf{my default pronouns are it/its or they/them.}}$
 
 $\color{#8d083a}{\textsf{usually offtab/semi-verbal. dont expect a response cause im also slow.}}$
 
